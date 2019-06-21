@@ -1,1 +1,1 @@
-# 10000won_last.
+# 10000won_last
